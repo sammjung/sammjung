@@ -5,7 +5,7 @@ I make things! 👷‍♂️
   
   -Drones that deliver 15kg packages
   
-  -Autopoeistic Music Systems Theory
+  -Autopoeistic Music Theory
   
   
  
