@@ -10,8 +10,8 @@ My work:
   
  
  ⚡ +1 (404) 376-1911
- 
- ⚡ Fizzydonut#7777
+
+✨ Fizzydonut#7777
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
