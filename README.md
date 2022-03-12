@@ -3,7 +3,7 @@ My work:
   
   -Printable stickers that can play the "true" sound of anything (your desk, a lamp, a bottle)
   
-  -Drones that deliver 15kg packages
+  -Drones that deliver heavy packages
   
   -Autopoeistic Music Theory
   
