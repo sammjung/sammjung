@@ -1,6 +1,11 @@
 ### Hi! I'm Sam.
-I'm into Augmented Reality, Wearables, and Embedded Music!
-
+I make cool things!
+  -Printable stickers that can play the "true" sound of anything (your desk, a lamp, a bottle)
+  -Drones that deliver 15kg packages
+  -Autopoeistic Music Systems Theory
+ 
+ ⚡ +1 (404) 376-1911
+ ⚡ FizzyDonut#7777
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
