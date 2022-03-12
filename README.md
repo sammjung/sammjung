@@ -1,5 +1,5 @@
 ### Hi! I'm Sam.
-I make things! 👷‍♂️
+Recent Projects:
   
   -Printable stickers that can play the "true" sound of anything (your desk, a lamp, a bottle)
   
