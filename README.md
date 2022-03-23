@@ -1,13 +1,7 @@
 ### Hi! I'm Sam.
 I make things!
-  
-  -Printable stickers that can play the "true" sound of anything (your desk, a lamp, a bottle)
-  
-  -Drones that deliver heavy packages
-  
+
   -Autopoeistic Music Theory
-  
-  
  
  ⚡ +1 (404) 376-1911
 
