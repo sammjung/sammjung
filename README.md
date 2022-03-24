@@ -2,8 +2,6 @@
 I make things!
 
   -Autopoeistic Music Theory
- 
- ⚡ +1 (404) 376-1911
 
 ✨ Fizzydonut#7777
 <!--
