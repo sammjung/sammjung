@@ -1,8 +1,7 @@
 ### Hi! I'm Sam.
 I make things!
 
-  -Autopoeistic Music Theory
-
+  -Autopoeisis
 ✨ Fizzydonut#7777
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
