@@ -4,6 +4,8 @@ I make things!
   -Autopoiesis
   
 ✨ Fizzydonut#7777
+
+💫Text me @ (404) 376-1911
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
