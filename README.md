@@ -5,7 +5,7 @@ I make things!
   
 ✨ Fizzydonut#7777
 
-💫samuelismofficial@gmail.com <<---
+💫hire me @ samuelismofficial@gmail.com <<---
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
