@@ -1,5 +1,5 @@
-### Hi I'm Sam!!
-I make things!
+### Hi I'm Sam!
+I make things.
 
   -Music
   
