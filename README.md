@@ -1,7 +1,7 @@
 ### Hi I'm Sam!
 I make things.
 
-  -Music
+  -Music, microphones, &
   
 ✨ Fizzydonut#7777
 
