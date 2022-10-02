@@ -1,9 +1,4 @@
 ### Hi I'm Sam!
-I make things.
-
-  -Music, microphones, &
-  
-✨ Fizzydonut#7777
 
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
