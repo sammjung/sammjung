@@ -1,4 +1,4 @@
-### Hi I'm Sam!
+### Hi, I'm Sam!
 
 <!--
 **bouncyslime555/bouncyslime555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
